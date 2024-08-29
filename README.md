@@ -7,6 +7,14 @@
 - ⚡ Fun fact: ...
 - e sou o Gay
 
+![](https://media1.tenor.com/m/wcnbpxn902YAAAAd/wig-reveal-pride.gif)
+
+
+
+
+
+
+
 <!---
 YagoTrazzi/YagoTrazzi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
